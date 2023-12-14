@@ -1,2 +1,2 @@
-# zeroseven.co
-lovvv
+to my lovvv
+lovvv uuuu sayanggggg
